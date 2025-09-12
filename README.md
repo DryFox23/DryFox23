@@ -1,1 +1,1 @@
-GRIND WEEKDAYS
+Idk. Just Grind
